@@ -1,1 +1,1 @@
-Will be information soon
+Will be more information soon
