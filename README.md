@@ -1,1 +1,1 @@
-Will be information soon, or no
+Will be information soon
